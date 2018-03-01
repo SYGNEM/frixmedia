@@ -1,2 +1,0 @@
-# frixmedia
-ddsfdsgdsgd
